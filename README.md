@@ -1,0 +1,2 @@
+# ongind
+Gab.shop12
